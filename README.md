@@ -1,2 +1,2 @@
-﻿# Projeto-de-Extensão-2-Período
+﻿# Projeto-de-Extensão-2°-Período
  Galeria Cultural de Patos
